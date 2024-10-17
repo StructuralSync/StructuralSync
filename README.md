@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @StructuralSync
-- 👀 I’m interested in making buildings quikc and simply
+- 👀 I’m interested in making buildings quick and simple
 - 🌱 I’m currently learning how to market and build my brand
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me structuralsync@gmail.com
